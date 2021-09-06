@@ -1,2 +1,0 @@
-# 4mbition-
-hi there 
